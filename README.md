@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **Rudranshshisodia26@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/16J51TO3GJvDOgUsFev-UwwNOQS1lZIvs/view?usp=drive_link](https://drive.google.com/file/d/16J51TO3GJvDOgUsFev-UwwNOQS1lZIvs/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/12NFpKlwyNkHS4JhCuIAesIlArQpKmN-r/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
